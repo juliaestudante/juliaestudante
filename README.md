@@ -1,5 +1,5 @@
 - 👋 @julh.mtfe
-- 👀 estudante de pensamento cumputacional
+- 👀 estudante de pensamento computacional
 - 🌱 sltr
 - 💞️ segue la no insta @julh.mtfe
 - 📫 chama la 190
